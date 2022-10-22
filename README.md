@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @4C3C
+- 👀 I’m interested in c# php 
+- 🌱 I’m currently in high school
+- 💞️ I’m currently developing a hacker forum website
+- 📫 Contact me: AURORA#3295 (DISCORD)
